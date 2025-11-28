@@ -1,5 +1,3 @@
-silicone.model
-
-https://youtu.be/rejFKiy-Wks?si=twwbiIpSH0xxtuOn
+https://www.radio.net/s/scifioldtime
 
 
